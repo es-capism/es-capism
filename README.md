@@ -12,4 +12,12 @@ hi i'm ***ATLAS***, **16**yo, strictly *he*/him - astrophysics, rocket science b
 i'm a pretty standard dude, don't really get offended by anything. <sub>socially awkward though, iwcare i guess</sub>
 </details>
 
+<details>
+  <summary>dni / byi / iwc</summary>
+  
+**DNI** basic dni, but specifically any Vivziepop fans avoid me. i don't friend people outside my age group. / dni if you make jokes about real world problems (war, etc). THIS IS ALL STILL BASIC DNI FUCK
+
+**IWC** under 13, over 18. no need to walk on egg shells, but i'll probably be awkward with people over/under these ages.
+
+</details>
 </div>
