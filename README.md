@@ -20,4 +20,14 @@ i'm a pretty standard dude, don't really get offended by anything. <sub>socially
 **IWC** under 13, over 18. no need to walk on egg shells, but i'll probably be awkward with people over/under these ages.
 
 </details>
+
+<details>
+  <summary>interests / INT</summary>
+
+<sub>i'm not like fully affiliating myself with the roblox community anymore but here:</sub> ***GRACE***, **PHIGHTING**, The Mimic, *Block Tales*, ***gasa4***
+
+<sub>others</sub> *Transformers*, Voltron, Skateboarding, Rubix Cubes, National Geographic, ***ULTRAKILL***
+
+</details>
+
 </div>
