@@ -7,7 +7,9 @@ $${\color{#0800FF}\text{"I WILL ALWAYS LOVE YOU,"}}$$
 <details>
   <summary>about me</summary>
 
-**16**yo, strictly *he*/him - astrophysics, rocket science based studies.
+hi i'm ***ATLAS***, **16**yo, strictly *he*/him - astrophysics, rocket science based studies.
+
+i'm a pretty standard dude, don't really get offended by anything. <sub>socially awkward though, iwcare i guess</sub>
 </details>
 
 </div>
