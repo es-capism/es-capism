@@ -20,7 +20,9 @@ i'm a pretty standard dude, don't really get offended by anything. <sub>socially
   
 **DNI** basic dni, but specifically any Vivziepop fans avoid me. i don't friend people outside my age group. / dni if you make jokes about real world problems (war, etc). THIS IS ALL STILL BASIC DNI FUCK
 
-**IWC** under 13, over 18. no need to walk on egg shells, but i'll probably be awkward with people over/under these ages.
+**IWC** under 13, over 18. no need to walk on egg shells, but i'll probably be awkward with people over/under these ages. *Dandy's World IWC*, *FORSAKEN IWEC*. / some of u guys are cool, fandom just scares me.
+
+**BYI** i can come off as strange or just plain out uncomfortable to be with - apologies - just really awkward with socializing. i get attached to friends easily due to struggle of making/keeping them.
 
 </details>
 
