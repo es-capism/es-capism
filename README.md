@@ -33,4 +33,8 @@ i'm a pretty standard dude, don't really get offended by anything. <sub>socially
 
 </details>
 
+$${\color{#007BFF}\text{── .✦}}$$
+
+$${\color{#0800FF}\text{"WILL YOU ALWAYS LOVE ME?"}}$$
+
 </div>
