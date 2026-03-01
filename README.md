@@ -1,6 +1,6 @@
 <div align="center">
 
-$${\color{red}\text{hello wip}}$$
+$${\color{#0800FF}\text{"I WILL ALWAYS LOVE YOU,"}}$$
 
 ![kookoo](https://files.catbox.moe/r2k0oa.gif)
 
