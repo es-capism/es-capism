@@ -43,4 +43,6 @@ $${\color{#0800FF}\text{"WILL YOU ALWAYS LOVE ME?"}}$$
 
 [sign my ata.. ok..?](https://escap-ism.atabook.org/)
 
+[help those in need. peace and love for all.](https://arab.org/click-to-help/)
+
 </div>
