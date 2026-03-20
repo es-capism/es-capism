@@ -6,7 +6,7 @@
 ![hyperlaser ditf](https://files.catbox.moe/6nwdnp.jpeg)
 
 
-$${\color{#205EB3}\text{── .✦}}$$
+hi i'm $${\color{#3D84B3}\text{ATLAS}}$$ or Cyber. click links for more :D
 
 [about me](https://rentry.co/escap-ism) . [ata](https://escap-ism.atabook.org/) . [extra](https://arab.org/click-to-help/)
 
