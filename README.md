@@ -9,10 +9,6 @@ $${\color{#4764AF}\text{"something here lol"}}$$
 
 $${\color{#205EB3}\text{── .✦}}$$
 
-$${\color{#2E379B}\{[about me](https://rentry.co/escap-ism)}}$$
-
-[sign my ata.. ok..?](https://escap-ism.atabook.org/)
-
-[help those in need. peace and love for all.](https://arab.org/click-to-help/)
+[about me](https://rentry.co/escap-ism) . [ata](https://escap-ism.atabook.org/) . [extra](https://arab.org/click-to-help/)
 
 </div>
