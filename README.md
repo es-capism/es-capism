@@ -1,8 +1,7 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=es-capism&label=sinners&color=676EB3&style=plastic)
+![](https://komarev.com/ghpvc/?username=es-capism&label=sinners&color=3778B0&style=plastic)
 
-$${\color{#4764AF}\text{"something here lol"}}$$
 
 ![hyperlaser ditf](https://files.catbox.moe/6nwdnp.jpeg)
 
