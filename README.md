@@ -7,7 +7,7 @@ $${\color{#4764AF}\text{"something here lol"}}$$
 ![hyperlaser ditf](https://files.catbox.moe/6nwdnp.jpeg)
 
 
-$${\color{#3778B0}\text{── .✦}}$$
+$${\color{#205EB3}\text{── .✦}}$$
 
 [about me](https://rentry.co/escap-ism)
 
