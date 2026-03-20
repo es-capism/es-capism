@@ -9,7 +9,7 @@ $${\color{#4764AF}\text{"something here lol"}}$$
 
 $${\color{#205EB3}\text{── .✦}}$$
 
-[about me](https://rentry.co/escap-ism)
+$${\color{#2E379B}\{[about me](https://rentry.co/escap-ism)}}$$
 
 [sign my ata.. ok..?](https://escap-ism.atabook.org/)
 
