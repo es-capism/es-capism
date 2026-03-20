@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=es-capism&label=sinners&color=0800FF&style=plastic)
+![](https://komarev.com/ghpvc/?username=es-capism&label=sinners&color=676EB3&style=plastic)
 
 $${\color{#3D84B3}\text{"something here lol"}}$$
 
