@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=es-capism&label=idiots&color=00a2e7&style=plastic)
 
 
-![hyperlaser ditf](https://files.catbox.moe/6nwdnp.jpeg)
+![ac : @wretchedvi42206](https://files.catbox.moe/d2hh0h.png)
 
 
 hi i'm $${\color{#00a2e7}\text{atlas}}$$/cyber. click links for more :D
