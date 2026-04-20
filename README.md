@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=es-capism&label=wolves&color=000000&style=plastic)
 
-![image](https://www.image2url.com/r2/default/images/1776649578569-c97c74b6-0911-409a-ba8e-f3e0e2a0710e.gif)
+![wolf brothers](https://postimg.cc/7fhD3SKB)
 
 salutations, i'm atlas. he/him, 16.
 
