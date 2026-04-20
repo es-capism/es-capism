@@ -1,13 +1,11 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=es-capism&label=idiots&color=00a2e7&style=plastic)
+![](https://komarev.com/ghpvc/?username=es-capism&label=wolves&color=000000&style=plastic)
 
+![image](https://www.image2url.com/r2/default/images/1776649578569-c97c74b6-0911-409a-ba8e-f3e0e2a0710e.gif)
 
-![ac : @wretchedvi42206](https://files.catbox.moe/d2hh0h.png)
+salutations, i'm atlas. he/him, 16.
 
-
-hi i'm $${\color{#00a2e7}\text{atlas}}$$/cyber. click links for more :D
-
-[about me](https://rentry.co/escap-ism) . [ata](https://escap-ism.atabook.org/) . [extra](https://arab.org/click-to-help/)
+[click to help](https://arab.org/click-to-help/)
 
 </div>
