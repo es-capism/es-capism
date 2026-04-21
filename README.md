@@ -8,6 +8,6 @@ salutations, i'm atlas. he/him, 16.
 
 [click to help](https://arab.org/click-to-help/)
 
-<sub>about [me](https://rentry.co/escap-ism)</sub>
+<sub>about [me](https://rentry.co/escap-ism), also [me](https://pronouns.cc/@escap-ism)</sub>
 
 </div>
