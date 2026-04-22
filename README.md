@@ -4,10 +4,10 @@
 
 ![wolf brothers](https://file.garden/aeWHuH8drAn4J5-A/wolf%20brothers)
 
-salutations, i'm atlas. he/him, 16.
+salutations, i'm [atlas](https://en.wikipedia.org/wiki/Wolf). he/him, 16.
 
 [click to help](https://arab.org/click-to-help/)
 
-<sub>about [me](https://rentry.co/escap-ism), also [me](https://pronouns.cc/@escap-ism)</sub>
+<sub>about [me](https://rentry.co/escap-ism),  [pronouns](https://pronouns.cc/@escap-ism)</sub>
 
 </div>
