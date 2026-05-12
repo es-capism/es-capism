@@ -1,7 +1,1 @@
-<p align="center">
-
-  hi there. this profile is currently being reworked.
-  
-  updates r slow, but info [here](https://rentry.co/escap-ism)
-  
-</p>
+ok hi im semiactive but this account is still in use . hvy rework . [rentry](https://rentry.co/escap-ism) <- lowk outdated
