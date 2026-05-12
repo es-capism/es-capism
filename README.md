@@ -1,7 +1,7 @@
-<p align=center>
+<p align="center">
 
-hi there. this profile is currently being reworked. info [here](https://rentry.co/escap-ism) / kind of outdated.
-
-semi-active on ponytown. sorry.
-
+  hi there. this profile is currently being reworked.
+  
+  updates r slow, but info [here](https://rentry.co/escap-ism)
+  
 </p>
