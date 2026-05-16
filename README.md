@@ -1,6 +1,6 @@
 <p align="center">
   <img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled49_20260516130442.png>
-  $\color{#F8D06B}{\textsf{I RATHER DIE DRUNK, BROKE AT 34,}}$
+  $\color{#F8D06B}{\textsf{I RATHER DIE DRUNK, BROKE AT 34, AND HAVE PEOPLE AT THE DINNER TABLE TALK ABOUT ME,}}$
   <details>
     <summary>pt info</summary>
 
