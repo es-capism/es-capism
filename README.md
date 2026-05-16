@@ -4,9 +4,9 @@
   <details>
     <summary>pt info</summary>
 
-  hi hi hi. my name is **atlas**. i'm not a very social person and can come off as mean. i can't be the best person to be around most times--often aggressive especially if i lose my train of thought. i'm just an angry bum.
+  hi hi hi. my name is **atlas**. i'm not a very social person and can come off as mean. i can't be the best person to be around most times--often passive aggressive and skeptical.
 
-  however free c+h. just note i'm mostly antisocial and mean.
+  however free c+h. just note i'm mostly antisocial and mean. i know i can come off as intimidating, but realistically and logically--i won't do anything. up to you to interact.
   </details>
   
   $\color{#F8D06B}{\textsf{THAN LIVE TO BE RICH AND SOBER AT 90, AND NOBODY REMEMBERED WHO I WAS.}}$
