@@ -12,3 +12,5 @@
   $\color{#F8D06B}{\textsf{THAN LIVE TO BE RICH AND SOBER AT 90, AND NOBODY REMEMBERED WHO I WAS.}}$
   <img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled49_20260516130507.png>
 </p>
+
+> [rentry](https://rentry.co/drum-kit)
